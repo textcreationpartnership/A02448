@@ -36,157 +36,169 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The enimie of securitie or A dailie exercise of godly meditations drawne out of the pure fountaines 
+
+1. To the Reader.
+
+1. ¶ To the honorable Sir Frances Walsingham Knight, one of hir Maiesties chiefe Secretaries, of the right honorable priuie Counsaile, and Chancelar of the Order, Grace and peace in our Sauior Christ.
+
+1. ¶ A Preface of Maister Iohn Auenar, Doctor of Diuinitie, and Publike Professor of the Hebrue tongue in the Vniuersitie of Witeberge, taken out of his Epistle before his Booke of daily Praiers, dedicated to the most mightie Prince, and Duke, Augustus, High marshal of the Romane Empire, &c.
+
 #####Body#####
+A Praier to be saide at the comming into the Temple.O ALMIGHTIE God, and heauenlie Father, Psalm. 5,
+    _ A Praier to be saide at the comming into the Temple.
 
-1. A Praier to be saide at the comming into the Temple.
+    _ An earnest petition for the assistance of Gods holy Spirit, that our praiers may be zealous and effectual.
 
-1. An earnest petition for the assistance of Gods holy Spirit, that our praiers may be zealous and effectual.
+    _ A dailie praier for the perpetual happines of our sacred, and most gratious Soueraigne, and Queene Elizabeth.
+1. Morning praier on the Lordes daie.O Almightie and merciful God, eternal Father, Sonne, and holy G
+    _ 1. Morning praier on the Lordes daie.
 
-1. A dailie praier for the perpetual happines of our sacred, and most gratious Soueraigne, and Queene Elizabeth.
+    _ 3. A praier for the remission of sinnes.
 
-1. 1. Morning praier on the Lordes daie.
+    _ 4. A praier for the preseruation of the Church.
 
-1. 3. A praier for the remission of sinnes.
+    _ 5. A praier for the Preachers of Gods word.
 
-1. 4. A praier for the preseruation of the Church.
+    _ 6. A praier for the hearers of the word of God.
 
-1. 5. A praier for the Preachers of Gods word.
+    _ 7. A praier against false Prophets.
 
-1. 6. A praier for the hearers of the word of God.
+    _ 8. Euening praier, on the Lordes daie.
+1. On Mondaie, Morning praier.BLESSED Psa. 72, 18. be the Lorde God, which alone doth woonderous thi
+    _ 1. On Mondaie, Morning praier.
 
-1. 7. A praier against false Prophets.
+    _ 2. A thankesgiuing for our redemption.
 
-1. 8. Euening praier, on the Lordes daie.
+    _ 3. A praier for Faith.
 
-1. 1. On Mondaie, Morning praier.
+    _ 4. A praier for the Kingdome of God.
 
-1. 2. A thankesgiuing for our redemption.
+    _ 5. A praier for Magistrates.
 
-1. 3. A praier for Faith.
+    _ 6. A praier for Subiects.
 
-1. 4. A praier for the Kingdome of God.
+    _ 7. A praier against the enimies of Gods truth.
 
-1. 5. A praier for Magistrates.
+    _ 8. Euening praier, on Mondaie.
+1. On Tuesdaie, Morning praier.O Almightie, euerliuing, true, & merciful God, eternal Father of our 
+    _ 1. On Tuesdaie, Morning praier.
 
-1. 6. A praier for Subiects.
+    _ 2. A thankesgiuing vnto God for our Sanctification.
 
-1. 7. A praier against the enimies of Gods truth.
+    _ 3. A praier for a stedfast hope.
 
-1. 8. Euening praier, on Mondaie.
+    _ 5. A praier for wedded folkes.
 
-1. 1. On Tuesdaie, Morning praier.
+    _ 6. A praier for yong folkes.
 
-1. 2. A thankesgiuing vnto God for our Sanctification.
+    _ 7. A praier against the dominion of Satan.
 
-1. 3. A praier for a stedfast hope.
+    _ 8. Euening praier, on Tuesdaie.
+1. On VVensdaie, Morning praier.O Almightie, and merciful GOD, which gauest the people of Israël in 
+    _ 1. On VVensdaie, Morning praier.
 
-1. 5. A praier for wedded folkes.
+    _ 2. A thankesgiuing for the knowledge of God.
 
-1. 6. A praier for yong folkes.
+    _ 3. A praier for the attaining of Christian Charitie.
 
-1. 7. A praier against the dominion of Satan.
+    _ 4. A praier for the frute of the earth.
 
-1. 8. Euening praier, on Tuesdaie.
+    _ 5. A praier for sinners.
 
-1. 1. On VVensdaie, Morning praier.
+    _ 6. A praier for the Sick.
 
-1. 2. A thankesgiuing for the knowledge of God.
+    _ 7. A praier against the tentation of Satan.
 
-1. 3. A praier for the attaining of Christian Charitie.
+    _ 8. Euening praier, on VVensdaie.
+1. Morning praier on Thursdaie.O Christ which art the light and the daie dwelling 1. Tim. 6, 16 in t
+    _ 1. Morning praier on Thursdaie.
 
-1. 4. A praier for the frute of the earth.
+    _ 2. A thankesgiuing vnto God for our foode.
 
-1. 5. A praier for sinners.
+    _ 3. A praier for vni tie in Religion.
 
-1. 6. A praier for the Sick.
+    _ 4. A praier for peace.
 
-1. 7. A praier against the tentation of Satan.
+    _ 5. A praier for vnbeleeuers.
 
-1. 8. Euening praier, on VVensdaie.
+    _ 6. A praier for our benefactors.
 
-1. 1. Morning praier on Thursdaie.
+    _ 8. Euening praier, on Thursdaie.
+1. On Friedaie, Morning praier.BLessed is the Lord God of Sabbaoth which by his commandement created
+    _ 1. On Friedaie, Morning praier.
 
-1. 2. A thankesgiuing vnto God for our foode.
+    _ 2. A thankesgiuing for the passion of Christ.
 
-1. 3. A praier for vni tie in Religion.
+    _ 3. A praier for true repentance.
 
-1. 4. A praier for peace.
+    _ 4. A praier for Christian patience.
 
-1. 5. A praier for vnbeleeuers.
+    _ 5. A praier for women with child, and in childbed.
 
-1. 6. A praier for our benefactors.
+    _ 6. A praier for captiues.
 
-1. 8. Euening praier, on Thursdaie.
+    _ 7. A praier against the tentation of the flesh.
 
-1. 1. On Friedaie, Morning praier.
+    _ 8. Euening praier, on Friedaie.
+1. On Saturdaie, Morning praier.O Lord God 2. Mach. 1, verse. 24., maker of al things, which art fea
+    _ 1. On Saturdaie, Morning praier.
 
-1. 2. A thankesgiuing for the passion of Christ.
+    _ 2. A thankesgiuing to God for his mercies.
 
-1. 3. A praier for true repentance.
+    _ 3. A praier for an happie departure out of this worlde.
 
-1. 4. A praier for Christian patience.
+    _ 4. A praier for the nourishment of this life.
 
-1. 5. A praier for women with child, and in childbed.
+    _ 5. A praier for the afflicted, and such as suffer persecution.
 
-1. 6. A praier for captiues.
+    _ 6. A praier for Widowes, and Orphanes.
 
-1. 7. A praier against the tentation of the flesh.
+    _ 7. A praier against desperation.
 
-1. 8. Euening praier, on Friedaie.
+    _ 8. Euening praier, on Saturdaie.
 
-1. 1. On Saturdaie, Morning praier.
+1. Here follow certaine peculiar praiers for some special persons.
 
-1. 2. A thankesgiuing to God for his mercies.
+    _ A praier for anie Preacher, or Shepherd of soules.
 
-1. 3. A praier for an happie departure out of this worlde.
+    _ A praier for anie hearer of Gods worde.
 
-1. 4. A praier for the nourishment of this life.
+    _ A praier for a Prince, or Magistrate.
 
-1. 5. A praier for the afflicted, and such as suffer persecution.
+    _ A praier of Subiects for their Prince.
 
-1. 6. A praier for Widowes, and Orphanes.
+    _ A praier for a married man.
 
-1. 7. A praier against desperation.
+    _ A praier for children.
 
-1. 8. Euening praier, on Saturdaie.
+    _ A praier against the Turke, or anie other foraine Tyrans.
 
-1. A praier for anie Preacher, or Shepherd of soules.
+    _ A praier to be saide in the time of the plague, sicknes, and mortalitie.
 
-1. A praier for anie hearer of Gods worde.
+    _ A praier to auoide both raging tempests, and vnseasonable weather.
 
-1. A praier for a Prince, or Magistrate.
+    _ A praier for waiefaring men, and Trauelers.
 
-1. A praier of Subiects for their Prince.
+    _ A Praier before the receiuing of the holie Communion.
 
-1. A praier for a married man.
+    _ Another praier before the receiuing of the holie Communion.
 
-1. A praier for children.
+    _ A thankesgiuing after the receiuing of the holie Communion.
 
-1. A praier against the Turke, or anie other foraine Tyrans.
+    _ Another thankesgiuing after the receipt of the holie Communion.
 
-1. A praier to be saide in the time of the plague, sicknes, and mortalitie.
+    _ A praier for the Sick.
 
-1. A praier to auoide both raging tempests, and vnseasonable weather.
+    _ Another praier for the Sick.
 
-1. A praier for waiefaring men, and Trauelers.
-
-1. A Praier before the receiuing of the holie Communion.
-
-1. Another praier before the receiuing of the holie Communion.
-
-1. A thankesgiuing after the receiuing of the holie Communion.
-
-1. Another thankesgiuing after the receipt of the holie Communion.
-
-1. A praier for the Sick.
-
-1. Another praier for the Sick.
-
-1. Another praier for the Sick.
+    _ Another praier for the Sick.
 
 #####Back#####
-The enimie of securitie or A dailie exercise of godly meditations drawne out of the pure fountaines 
+
+1. A vewe of the Praiers as they orderlie stande in this booke.
+
+1. To the Reader.
+
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
